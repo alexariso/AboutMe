@@ -1,5 +1,5 @@
 # Alexa Riso
-**Summary**
+**Professional Summary**
 
 Finance major with experience in office administration, billing, and holding leadership positions. Excellent written and verbal communication skills and the ability to work with teams.
 
